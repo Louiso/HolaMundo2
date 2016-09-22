@@ -5,4 +5,4 @@ Bueno aqui estoy tratando de entender mas o menos el funcionamiento del sistema 
 
 Me parece muy bn de tu parte
 
-No me cansare de seguir haciendo cambios a esta hoja.
+Borrando esta pendejada >:v
